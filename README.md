@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @qz9-insyirahhK4
+- 👋 Hi, I’m @qz9-insyirahhK4 or Qaiys Insyirah, from class k4
 - 👀 I’m interested in stargazing and reading
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on (idk)
